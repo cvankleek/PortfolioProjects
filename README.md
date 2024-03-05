@@ -1,0 +1,1 @@
+This is the beginning of my journey to becoming a Data Analyst. These are the first pieces of work that I have done to show the skills I am learning. My goal is to continue to grow my skills and add the products of my learning here.
